@@ -61,7 +61,7 @@ Cell Biology · PCR · SDS-PAGE · Spectrophotometry
 
 ## 📫 Contact Me
 - 📧 shailendrachouhan2388@gmail.com
-- 💼 [LinkedIn](https://linkedin.com/in/shailendrachouhan)
+- 💼 [LinkedIn](https://www.linkedin.com/in/shailendra-chouhan-26a9943a6)
 - 🌍 Indore, Madhya Pradesh, India
 
 ---
