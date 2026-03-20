@@ -13,7 +13,7 @@ understand biology. I am building the rare combination of both.
 ---
 
 ## 🎓 Education
-- **M.Sc. Biochemistry** — DAVV Takshila, Indore (2024–2026)
+- **M.Sc. Biochemistry** — DAVV Takshila, Indore (2025–2027)
 
 ---
 
@@ -61,7 +61,7 @@ Cell Biology · PCR · SDS-PAGE · Spectrophotometry
 
 ## 📫 Contact Me
 - 📧 shailendrachouhan2388@gmail.com
-- 💼 [LinkedIn](https://www.linkedin.com/in/shailendra-chouhan-26a9943a6)
+- 💼 [LinkedIn](www.linkedin.com/in/shailendra-chouhan2388)
 - 🌍 Indore, Madhya Pradesh, India
 
 ---
